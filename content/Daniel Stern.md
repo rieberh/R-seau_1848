@@ -1,0 +1,7 @@
+Marie Catherine Sophie de Flavigny est une femme de lettres, formée dans un couvent puis auprès d’écrivains comme Châteaubriand et Lamartine. Elle épouse le comte Charles Louis Constant d’Agoult en 1827, mais le couple se sépare en 1835. Elle choisit un pseudonyme masculin pour publier ses écrits : celui de Daniel Stern, en hommage à l’un de ses fils prénommé Daniel et décédé prématurément. Elle publie en 1850 une Histoire de la Révolution de 1848 mettant en avant les émotions provoquées, à travers une narration littéraire. Elle a passé une partie de sa vie en Allemagne -> elle a peut-être des contacts parmi les intellectuels allemands. Elle est la maîtresse de [[Franz Liszt]]. 
+Elle écrit une lettre à [[Emma Herwegh]] le 26 janvier 1847 (Correspondances 41)
+Elle écrit des lettres à [[Georg Herwegh|Georg Herwegh]] et à [[Karl August Varnhagen von Ense]]. 
+Elle écrit en le 18 février 1847 une lettre à [[Karl von Varnbüler]] (Correspondances51).
+Elle reçoit une lettre fin février 1847, de la part de [[Therese von Bacheracht]] (Correspondances59).
+Dans une lettre à Georg Herweg le 31 mai 1847, Daniel Stern lui demande le titre du volume de vers de [[Ferdinand Freiligrath]] en 1840 (Correspondance101). Peut-être le connaît elle? Elle a écrit un article à son sujet dans _La Revue des Deux Mondes_ (Correspondances, Tome IV, p. 397, note 1).
+Correspondance avec [[Alphonse de Lamartine]].

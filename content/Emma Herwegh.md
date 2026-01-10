@@ -1,0 +1,2 @@
+Femme de [[Georg Herwegh]]. Correspondance avec [[Daniel Stern]]. 
+Elle tient salon à Paris entre 1843 et 1848. Elle fait notamment la connaissance de [[Heinrich Heine]], [[Karl Marx]], [[Mikhaïl Bakounine]], George Sand et Victor Hugo. 

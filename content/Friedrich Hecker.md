@@ -1,0 +1,1 @@
+Juriste de profession, Hecker est le chef de la gauche radicale au pré-parlement de Frankfurt, formé au moment du soulèvement de mars 48. Ballade satirique "Das Guckkasten-Lied vom groβen Hecker", écrite par le juriste d’Heidelberg Karl Gottfried Nadler. C’est une moquerie par rapport à Hecker qui a échoué à monter une rébellion armée en avril 1848. 

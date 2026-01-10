@@ -1,0 +1,1 @@
+Le 10 août 1848, il écrit une lettre à [[Daniel Stern]] pour décliner son invitation à dîner (Correspondances315) car il est boiteux et qu'il ne dîne jamais en ville. 

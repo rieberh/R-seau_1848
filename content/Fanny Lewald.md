@@ -1,0 +1,4 @@
+Fanny Lewald voyage à Paris en mars 1848. Dans ses _Erinnerungen_, elle mentionne ce qu'elle a vu dans la ville et les personnes avec qui elle entretient des relations. Lors de son voyage à Paris, elle aurait bien voulu voir George Sand mais celle-ci était dans le Berry pour se soigner. Elle voulait aussi voir [[Heinrich Heine]]. Elle le rencontre effectivement. 
+A Paris, Fanny Lewald a vu à plusieurs reprises [[Georg Herwegh|Georg Herwegh]] et sa femme. Ils seraient actuellement dans une grande agitation. Herwegh est à la tête, à Paris, d’un comité de républicains allemands. Herwegh fait aussi partie du club des Détenus politiques.
+Elle rencontre également [[Daniel Stern]]. 
+Elle connaît [[Auguste Blanqui]] et son frère Jérôme-Adolphe Blanqui. 

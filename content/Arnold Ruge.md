@@ -1,0 +1,1 @@
+Emigré à Zurich comme [[Karl Heinzen]]. Pendant la "querelle athée" de Zurich, Ruge [[Julius Fröbel]] et Heinzen s'opposent à [[Friedrich Wilhelm Schultz]] et [[Adolf Ludwig Follen]] qui défendent la croyance en Dieu et en l'immortalité.

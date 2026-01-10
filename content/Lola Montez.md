@@ -1,0 +1,2 @@
+Née en 1821, [[Lola Montez]] passe la plus grande partie de son enfance en Grande-Bretagne. Après un mariage ayant abouti à la séparation, elle débute une carrière de courtisane. D’abord à Londres, elle se rend ensuite à Paris, où elle devient amante d’intellectuels comme Franz Liszt et Alexandre Dumas fils. Après un voyage à Munich, elle devient la maîtresse du roi de Bavière, [[Ludwig I.]]
+Elle est faite comtesse de Landsfeld et chanoinesse de l’ordre de Sainte-Thérèse en 1847, ce qui suscite l’hostilité populaire et participe à l’impopularité du roi.

@@ -1,0 +1,1 @@
+Révolutionnaire radical démocrate pendant les évènements de 1848. 

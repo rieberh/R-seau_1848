@@ -1,0 +1,2 @@
+En 1831, Heinrich Heine émigre à Paris. Il publie des résumés sur la situation française dans le *Allgemeine Zeitung*. Il est [[Karl Marx]], avec qui il entretient une correspondance qui n'a pas été conservée. Il visite des clubs socialistes avec [[Franz Liszt]]. Il connaît aussi Chopin, [[ Richard Wagner]], Ferdinand Lassalle, [[Gustave Flaubert]], Baudelaire, Balzac, Alexandre Dumas, Delacroix, George Sand et Théophile Gauthier. 
+Même lorsqu'il est à Paris, il écrit pour l'_Allgemeine Zeitung_. 
