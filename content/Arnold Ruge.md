@@ -1,1 +1,2 @@
-Emigré à Zurich comme [[Karl Heinzen]]. Pendant la "querelle athée" de Zurich, Ruge [[Julius Fröbel]] et Heinzen s'opposent à [[Friedrich Wilhelm Schultz]] et [[Adolf Ludwig Follen]] qui défendent la croyance en Dieu et en l'immortalité.
+Arnold Ruge est un émigré allemand à Zurich, ville dans laquelle il rencontre [[Karl Heinzen]]. 
+Il prend part à la "querelle athée" de Zurich, aux côtés de [[Julius Fröbel]] et Karl Heinzen, qui s'opposent à [[Friedrich Wilhelm Schultz]] et [[Adolf Ludwig Follen]], défenseurs de la croyance en Dieu et en l'immortalité. 

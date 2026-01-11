@@ -1,4 +1,4 @@
-Georg Herwegh est un #poète révolutionnaire qui vit en exil à Paris. Au début du mois d'avril 1848, il rassemble une force de qq insurgés pour aider [[Friedrich Hecker]] mais ces derniers arrivent trop tard. Il est ami avec l'éditeur exilé à Zurich [[Julius Fröbel]], qui dirige le [[Literarisches Comptoir]]. Il rencontre à Jena [[Robert Blum]].
+Georg Herwegh est un poète révolutionnaire qui vit en exil à Paris. Au début du mois d'avril 1848, il rassemble une force de qq insurgés pour aider [[Friedrich Hecker]] mais ces derniers arrivent trop tard. Il est ami avec l'éditeur exilé à Zurich [[Julius Fröbel]], qui dirige le [[Literarisches Comptoir]]. Il rencontre à Jena [[Robert Blum]].
 Sa femme [[Emma Herwegh]].
 
 Il est connu depuis le début des années 1840 pour ses _Gedichte eines Lebendigen_ (Geoffroy191)

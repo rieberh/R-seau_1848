@@ -1,1 +1,1 @@
- 
+Alphonse de Lamartine est un acteur politique de premier plan pendant la période révolutionnaire. Il est en lien avec d'autres intellectuels politisés, comme [[Daniel Stern]] avec lequel il correspond.   
