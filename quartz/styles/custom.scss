@@ -1,3 +1,21 @@
 @use "./base.scss";
 
-// put your custom CSS here!
+/* Police globale */
+:root {
+  --body-font: "Times New Roman", Times, serif;
+  --heading-font: "Times New Roman", Times, serif;
+}
+
+/* Forcer texte */
+.page-content,
+.content,
+article {
+  font-family: "Times New Roman", Times, serif !important;
+  text-align: justify;
+  hyphens: auto;
+}
+
+/* Forcer tous les titres */
+h1, h2, h3, h4, h5, h6 {
+  font-family: "Times New Roman", Times, serif !important;
+}

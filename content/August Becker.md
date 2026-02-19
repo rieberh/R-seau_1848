@@ -1,1 +1,1 @@
-August Becker est un journaliste qui participe avec [[Georg Büchner]] à la fondation de la [[Gesellschaft für Menschenrechte]]. Il prend part à la révolution de mars 1848 en Hesse et publie des articles. Il est membre de la [[Ligue des Justes]], en Suisse (Grandjonc119).
+August Becker est un journaliste qui participe avec [[Georg Büchner]] à la fondation de la [[Gesellschaft für Menschenrechte]]. Il prend part à la révolution de mars 1848 en Hesse et publie des articles. Il est membre de la [[Bund der Geächteten]], en Suisse (Grandjonc119).
