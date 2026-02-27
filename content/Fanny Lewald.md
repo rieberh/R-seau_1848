@@ -2,3 +2,4 @@ Fanny Lewald voyage à Paris en mars 1848. Dans ses _Erinnerungen_, elle mention
 A Paris, Fanny Lewald a vu à plusieurs reprises [[Georg Herwegh|Georg Herwegh]] et sa femme. Ils seraient actuellement dans une grande agitation. Herwegh est à la tête, à Paris, d’un comité de républicains allemands. Herwegh fait aussi partie du club des Détenus politiques.
 Elle rencontre également [[Daniel Stern]]. 
 Elle connaît [[Auguste Blanqui]] et son frère Jérôme-Adolphe Blanqui. 
+Après avoir quitté Paris, elle se rend à Berlin puis à Francfort, où elle assiste aux sessions parlementaires en octobre. 

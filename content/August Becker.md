@@ -1,1 +1,3 @@
-August Becker est un journaliste qui participe avec [[Georg Büchner]] à la fondation de la [[Gesellschaft für Menschenrechte]]. Il prend part à la révolution de mars 1848 en Hesse et publie des articles. Il est membre de la [[Bund der Geächteten]], en Suisse (Grandjonc119).
+August Becker est un journaliste qui participe avec [[Georg Büchner]] à la fondation de la [[Gesellschaft für Menschenrechte]]. Il prend part à la révolution de mars 1848 en Hesse et publie des articles. Il est membre de la [[Bund der Geächteten]], en Suisse.
+
+	Grandjonc Jacques, « Les émigrés allemands sous la Monarchie de Juillet -Documents de surveillance policière 1833 -Février 1848 », _Cahiers d’Études Germaniques_, vol. 1, no 1, 1972, p. 115-249.
