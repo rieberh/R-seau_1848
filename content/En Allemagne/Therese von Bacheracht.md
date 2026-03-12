@@ -1,1 +1,0 @@
-Elle est la cousine du révolutionnaire [[Gustav Struve]] et correspond avec [[Daniel Stern]]. Elle est très amie avec [[Fanny Lewald]] depuis 1845. Elles se sont connues à Berlin. 
