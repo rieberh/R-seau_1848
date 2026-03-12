@@ -10,8 +10,7 @@ Bienvenue sur le site dédié au réseau d'acteurs de la révolution de 1848. Vo
 
 En arrivant sur le site, il suffit de cliquer sur **"Explorer"** pour obtenir la liste des personnages présentés dans ce réseau. Une page correspond à chacun d'entre eux.
 
-!["C:\Users\UX5406\quartz\content\Accueil.png"]
-*La page d'accueil avec le bouton "Explorer".*
+!(Accueil.png)
 
 ## Quelles sont les informations disponibles ?
 
@@ -22,7 +21,6 @@ Chaque page de personnage contient les informations suivantes :
 - La liste des fiches mentionnant ce personnage.
 
 !["C:\Users\UX5406\quartz\content\Personnage.png"]
-*Exemple d'une page de personnage (Adolf Ludwig Follen).*
 
 !["C:\Users\UX5406\quartz\content\Texte.png"]
 
