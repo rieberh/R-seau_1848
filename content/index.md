@@ -10,7 +10,7 @@ Bienvenue sur le site dédié au réseau d'acteurs de la révolution de 1848. Vo
 
 En arrivant sur le site, il suffit de cliquer sur **"Explorer"** pour obtenir la liste des personnages présentés dans ce réseau. Une page correspond à chacun d'entre eux.
 
-!(Accueil.png)
+![La page d'accueil avec le bouton Explorer](Accueil.png)
 
 ## Quelles sont les informations disponibles ?
 
