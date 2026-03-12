@@ -3,3 +3,4 @@ A Paris, Fanny Lewald a vu à plusieurs reprises [[Georg Herwegh|Georg Herwegh]]
 Elle rencontre également [[Daniel Stern]]. 
 Elle connaît [[Auguste Blanqui]] et son frère Jérôme-Adolphe Blanqui. 
 Après avoir quitté Paris, elle se rend à Berlin puis à Francfort, où elle assiste aux sessions parlementaires en octobre. 
+1843: elle quitte le domicile familial pour s'installer à Berlin. elle publie des textes anonymement à propos des problèmes sociaux, de la famille ou du mariage. Elle ouvre un salon litt à Berlin et y accueillent des autrices comme [[Therese von Bacheracht]]. 
