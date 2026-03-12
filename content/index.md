@@ -1,5 +1,5 @@
 ---
-title: Réseau d'acteurs de la révolution de 1848
+title: Réseau des émigrés allemands en 1848
 ---
 
 # Utilisation de ce site
