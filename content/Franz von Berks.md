@@ -1,1 +1,0 @@
-Né en 1792, [[Franz von Berks]] est un universitaire enseignant la philosophie. Après avoir dirigé le Bureau de Statistiques récemment institué, il devient ministre de l’Intérieur pour le roi [[Ludwig I.]] en 1847. Le peuple du royaume de Bavière ne l’apprécie pas particulièrement, notamment car il pousserait le roi à poursuivre sa relation avec [[Lola Montez]].
