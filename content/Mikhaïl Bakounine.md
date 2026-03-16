@@ -1,1 +1,2 @@
 Il correspond avec [[Daniel Stern]].
+Il arrive à Paris en 1844, retrouve [[Arnold Ruge]], rencontre [[Karl Marx]] et [[Friedrich Engels]]. Il est logé dans les locaux du journal des exilés allemands, *Vorwäts*. 

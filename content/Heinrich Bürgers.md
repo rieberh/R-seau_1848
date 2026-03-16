@@ -1,1 +1,1 @@
-  
+Im Herbst 1844 reiste er nach Paris, wo er mit [[Karl Marx]] näher bekannt wurde. Als Marx Anfang 1845 ausgewiesen wurde, begleitete Bürgers ihn nach Brüssel. Von 1846 bis 1847 arbeitete er in Köln für das von Marx und [[Friedrich Engels]] gegründete Kommunistische Korrespondenz-Komitee und wurde 1847 Mitglied der Kölner Gemeinde des Bundes der Kommunisten.  März/April 1848 Abgeordneter des Vorparlaments in FFM. Seit Juni 1848 gehörte er der Redaktion der von Marx und Engels herausgegebenen Neuen Rheinischen Zeitung an, an deren Gründung er maßgeblich beteiligt war.  
