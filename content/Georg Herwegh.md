@@ -12,6 +12,6 @@ En 1848, il rassemble une légion démocratique allemande depuis Paris pour le p
 Il fréquente à Paris le cercle des *Annales franco-allemandes* éditées par [[Karl Marx]]. 
 Il entretient une correspondance avec [[Mikhaïl Bakounine]]. 
 
-71 En 1842 Herwegh se rend en Suisse pour un voyage littéraire, mais en réalité il se renseigne aussi sur le thème de la révolution. Il se crée un réseau de relations qui perdurent jusqu’à la révolution de 1848. Il est ami avec Julius Fröbel, éditeur exilé à Zurich et à la tête du _Literarisches Comptoir_, asile contre la censure allemande. Il passe un moment à Francfort lors du Parlement. Il y rencontre Karl Gutzkow, auteur, publiciste, journaliste, qui a publié le manuscrit sur Danton de Georg Büchner. Herwegh rencontre Robert Blum à Jena. Il rencontre aussi Arnold Ruge, un journaliste engagé à Dresden.
+71 En 1842 Herwegh se rend en Suisse pour un voyage littéraire, mais en réalité il se renseigne aussi sur le thème de la révolution. Il se crée un réseau de relations qui perdurent jusqu’à la révolution de 1848. Il est ami avec [[Julius Fröbel]] , éditeur exilé à Zurich et à la tête du _Literarisches Comptoir_, asile contre la censure allemande. Il passe un moment à Francfort lors du Parlement. Il y rencontre [[Karl Gutzkow]], auteur, publiciste, journaliste, qui a publié le manuscrit sur Danton de [[Georg Büchner]] Büchner.  rencontre Robert Blum à Jena. Il rencontre aussi [[Arnold Ruge]] , un journaliste engagé à Dresden.
 
-73Ruge et Bakounine sont fans de Herwegh. Ils deviennent amis et élaborent des projets journalistiques. (Bong)
+73Ruge et [[Mikhaïl Bakounine]] sont fans de Herwegh. Ils deviennent amis et élaborent des projets journalistiques. (Bong)
