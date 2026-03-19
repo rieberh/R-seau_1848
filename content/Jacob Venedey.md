@@ -1,3 +1,4 @@
-A Paris à partir de décembre 1833. Il fuit l'Allemagne après avoir été arrêté pour sa participation aux Fêtes de Hambach. Fondateur en 1834 avec Schuster de la Deutschen Volksverein. Il fréquente [[Georg Fein]] et devient membre de la [[Bund der Geächteten]]. Il est correspondant avec _Augsburger Allgemeine Zeitung_ et _Leipziger Allgemeine Zeitung_. En 1848, il fait partie de Parlement de Francfort. 
+A Paris à partir de décembre 1833. Il fuit l'Allemagne après avoir été arrêté pour sa participation aux Fêtes de Hambach. Fondateur en 1834 avec Schuster de la Deutschen Volksverein. Il fréquente [[Georg Fein]] et devient membre de la Bund der Geächteten. Il est correspondant avec _Augsburger Allgemeine Zeitung_ et _Leipziger Allgemeine Zeitung_. En 1848, il fait partie de Parlement de Francfort, où il rencontre probablement d'autres hommes politiques de gauche comme [[Friedrich Hecker]], [[Robert Blum]], [[Arnold Ruge]] et [[Friedrich Wilhelm Schultz]]. 
+
 
 	Mühlestein Hans, « Marx and the Utopian Wilhelm Weitling », _Science & Society_, vol. 12, no 1, Guilford Press, 1948, p. 113-129.
