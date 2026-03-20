@@ -8,3 +8,6 @@ Kruse 19 Il a confié à [[Émile de Girardin]] être né avant le mariage de se
 98 il a des bonnes relations avec [[Karl Gutzkow]] à la fin des années 30 mais elles se dégradent ensuite. -> rivalité. 
 110 Il connaît [[Fanny Lewald]]. 
 89 il ne participe pas aux ligues de et a juste de bonnes relations avec [[Jacob Venedey]]. 
+
+--------------------------
+	Höhn Gerhard et Bernd Füllner, _Deutsch-französischer Ideentransfer im Vormärz_, Bielefeld, Aisthesis Verlag, coll. « Jahrbuch », no 2002, 8. Jahrgang, 2003.
