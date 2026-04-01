@@ -6,7 +6,5 @@ Après avoir quitté Paris en 1845, il s'installe à Zurich, où il fait la conn
 La révolution de février 1848 à Paris l'enthousiasme, ce qui le pousse à contribuer aux évènements allemands, siégeant à l'extrême-gauche du Parlement de Francfort. Il rencontre probablement à cette occasion [[Robert Blum]], [[Friedrich Hecker]] et [[Jacob Venedey]], qui sont également membres du parlement. Martin Hudnt affirme que Ruge correspond avec [[Jacob Venedey]]. 
 
 _____________________________
-	
 	Ruge Arnold, _Aux origines du couple franco-allemand: critique du nationalisme et révolution démocratique avant 1848_, Lucien Calvié (éd.), Toulouse, Presses universitaires du Mirail, 2004.
-	
 	Hundt Martin, « Jungehelianer in Paris », dans Bernd Füllner et Gerhard Höhn, _Deutsch-französischer Ideentransfer im Vormärz_, Bielefeld, Aisthesis Verlag, 2002.

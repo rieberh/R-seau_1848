@@ -4,4 +4,5 @@ En 1842, il publie un texte de [[Heinrich Hoffmann von Fallersleben]] à Strasbo
 
 1844-45 il a des soucis avec les autorités suisses en raison de son engagement pol. Aide de ses amis pour qu'il soit libéré: [[Friedrich Wilhelm Schultz]] et un avocat nommé Adolf Barth + son frère Eduard Fein. Mais il est ramené en autriche et exilé aux etats-unis sur ordre de Metternich. Il continue son engagement pol et maintient des amitiés avec d'autres figures d'opposition comme [[Jacob Venedey]], Karl Schapper, Johann Ernst Arminius von Rauschenplat. 
 
+---------------------
 	Lent Dieter,  _Findbuch zum Bestand Nachlaß des Demokraten Georg Fein (1803–1869) sowie Familie Fein (1737–) ca. 1772–1924_, Niedersächsische Archivverwaltung, Wolfenbüttel 1991. 

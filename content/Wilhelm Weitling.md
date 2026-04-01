@@ -11,6 +11,6 @@ zum Beginn der Aufstände 1848 zurück nach Europa. Doch spielt er
 +++ Weitling à Paris Bong 56
 
 --------------------------------------------------------------
-
+	Bong Jörg, _Die Flamme der Freiheit: die deutsche Revolution 1848/1849_, Cologne, Kiepenheuer & Witsch, 2022.
 	(1) Grandjonc Jacques, « Les émigrés allemands sous la Monarchie de Juillet -Documents de surveillance policière 1833 -Février 1848 », _Cahiers d’Études Germaniques_, vol. 1, no 1, 1972, p. 115-249, p. 142.
 	(2) Mühlestein Hans, « Marx and the Utopian Wilhelm Weitling », _Science & Society_, vol. 12, no 1, Guilford Press, 1948, p. 113-129, p. 115.
