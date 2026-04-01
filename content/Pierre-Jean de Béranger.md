@@ -1,1 +1,3 @@
-Le 10 août 1848, il écrit une lettre à [[Daniel Stern]] pour décliner son invitation à dîner (Correspondances315) car il est boiteux et qu'il ne dîne jamais en ville. 
+Pierre-Jean de Béranger est un chansonnier français très prolifique jusque dans les années 1830. Il connaît [[Daniel Stern]], dont il fréquente le salon et avec laquelle il entretient des correspondances. Il est également ami avec [[Alphonse de Lamartine]].
+
+	Agoult Marie de Flavigny, _Correspondance générale_, Charles François Dupêchez (éd.), Paris, Honoré Champion, coll. « Bibliothèque des correspondances, mémoires et journaux », no 95, 2017, vol. 6.

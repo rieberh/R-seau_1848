@@ -10,4 +10,4 @@ Kruse 19 Il a confié à [[Émile de Girardin]] être né avant le mariage de se
 89 il ne participe pas aux ligues de et a juste de bonnes relations avec [[Jacob Venedey]]. 
 
 --------------------------
-	Höhn Gerhard et Bernd Füllner, _Deutsch-französischer Ideentransfer im Vormärz_, Bielefeld, Aisthesis Verlag, coll. « Jahrbuch », no 2002, 8. Jahrgang, 2003.
+	Kruse Joseph Anton, « Heines Besucher in Paris von 1831 bis 1848 », dans Gerhard Höhn et Bernd Füllner, _Deutsch-französischer Ideentransfer im Vormärz_, Bielefeld, Aisthesis Verlag, 2003.

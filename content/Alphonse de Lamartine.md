@@ -1,4 +1,5 @@
-Alphonse de Lamartine est un acteur politique de premier plan pendant la révolution de 1848. Très connu et apprécié à Paris, il est en lien avec d'autres intellectuels politisés, comme [[Daniel Stern]] avec lequel il correspond(1).
-Kruse72. Il a sûrement rencontré [[Heinrich Heine]] au selon de DS. 
+Alphonse de Lamartine est un acteur politique de premier plan pendant la révolution de 1848. Très connu et apprécié à Paris, il est en lien avec d'autres intellectuels politisés, comme [[Daniel Stern]] avec lequel il correspond. Fréquentant son salon, il y rencontre probablement [[Heinrich Heine]]. 
 
-	(1) Agoult Marie de Flavigny, _Correspondance générale_, Charles François Dupêchez (éd.), Paris, Honoré Champion, 2017, vol. 6.
+-------------------------
+	Agoult Marie de Flavigny, _Correspondance générale_, Charles François Dupêchez (éd.), Paris, Honoré Champion, 2017, vol. 6.
+	Kruse Joseph Anton, Michael Werner, et Heinrich-Heine-Institut (éd.), _Heine à Paris : 1831-1856_, Paris, Goethe Institut, 1981.
