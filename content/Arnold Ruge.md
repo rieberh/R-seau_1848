@@ -3,7 +3,8 @@ En juillet 1843, Ruge voyage chez [[Ludwig Feuerbach]]. Au cours de l'été 1843
 En 1844, il fait partie des radicaux issus de l'émigration intellectuelle allemande, qui se regroupent autour du journal _Vorwärts_, auquel il contribue aux côtés de [[Heinrich Heine]], Marx, Bakounine et Engels. Il reste, d'autre part, en contact avec les allemands exilés en Suisse, et notamment avec [[Wilhelm Weitling]]. Il connaît également le poète [[Georg Herwegh]], avec lequel il avait élaboré, au printemps 1843, un projet de revue orientée vers la France. L'année 1844 est cependant marquée par une rupture entre Ruge et Marx. 
 
 Après avoir quitté Paris en 1845, il s'installe à Zurich, où il fait la connaissance de [[Karl Heinzen]] et prend part à la "querelle athée" à ses côtés, ainsi qu'à ceux de [[Julius Fröbel]]. Ils s'opposent ainsi à [[Friedrich Wilhelm Schultz]] et [[Adolf Ludwig Follen]]. 
-La révolution de février 1848 à Paris l'enthousiasme, ce qui le pousse à contribuer aux évènements allemands, siégeant à l'extrême-gauche du Parlement de Francfort. Il rencontre probablement à cette occasion [[Robert Blum]], [[Friedrich Hecker]] et [[Jacob Venedey]], qui sont également membres du parlement. Martin Hudnt affirme que Ruge correspond avec [[Jacob Venedey]]. 
+
+La révolution de février 1848 à Paris l'enthousiasme, ce qui le pousse à contribuer aux évènements allemands, en siégeant à l'extrême-gauche du Parlement de Francfort. Il rencontre probablement à cette occasion [[Robert Blum]], [[Friedrich Hecker]] et [[Jacob Venedey]], qui sont également membres du parlement. 
 
 _____________________________
 	Ruge Arnold, _Aux origines du couple franco-allemand: critique du nationalisme et révolution démocratique avant 1848_, Lucien Calvié (éd.), Toulouse, Presses universitaires du Mirail, 2004.
