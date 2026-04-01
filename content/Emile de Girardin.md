@@ -1,1 +1,0 @@
-Journaliste, qui connaît un peu près tout le monde dans le milieu intellectuel parisien. Il change de bord politique quand ça l'arrange et produit de nombreux journaux. Il est l'amant de [[Daniel Stern]] pendant un moment. 
