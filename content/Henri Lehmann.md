@@ -1,2 +1,2 @@
-(Correspondance de Daniel Stern tome 5 p. 61) : lettre de [[Daniel Stern]] début mars 1847 à Henri Lehmann, peintre allemand naturalisé FR en 1847. Après avoir été élève d’Ingres, il ouvre son atelier à Paris la même année. 
+(Correspondance de Daniel Stern tome 5 p. 61) : lettre de [[Marie d'Agoult]] début mars 1847 à Henri Lehmann, peintre allemand naturalisé FR en 1847. Après avoir été élève d’Ingres, il ouvre son atelier à Paris la même année. 
 Dans une lettre de Daniel Stern le 1er octobre 1848, elle dit avoir reçu des nouvelles de lui par [[Therese von Bacheracht]] et [[Fanny Lewald]] (Correspondances328).

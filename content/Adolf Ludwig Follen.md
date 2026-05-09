@@ -2,4 +2,4 @@ Au cours de la décennie qui précède la révolution de mars 1848, Adolf Ludwig
 Follen participe, en 1843, au financement de la maison d'édition [[Literarisches Comptoir]], fondée par Fröbel et établie à Zurich et Winterthur. Celle-ci publie principalement des écrits d'exilés politiques allemands. Follen aide ainsi le jeune poète [[Gottfried Keller]] afin que ses premiers poèmes soient publiés au Literarisches Comptoir.  
 
 -------------------------------------------
-	Historisches Lexikon der Schweiz (HLS) [2001-2014] Autor/in: Markus Bürgi (2005)](https://hls-dhs-dss.ch/de/articles/028113/)
+	Historisches Lexikon der Schweiz (HLS) [2001-2014] Autor/in: Markus Bürgi (2005)(https://hls-dhs-dss.ch/de/articles/028113/)
