@@ -1,8 +1,19 @@
-Vie à Zurich en 1833-34 puis à Liestal. 1835 création d'un club considéré comme la centrale de la Jeune Allemagne
-1836 Fein expulsé de Suisse et se rend à Paris où il rejoint le Bund der Geächteten. Fein publie la rue *Der Geächtete*. Il se lie d'amitié avec [[Heinrich Heine]]. Expulsé de France en 1837, il va à Londres où il fonde un club de lecture. Il bouge entre Strasbourg, Oslo et Londres. Il se lie d'amitié avec [[Georg Büchner]] à Strasbourg. Revient à Liestal en 1844. Il participe à des associations pour la formation d'ouvriers de. Revient en DE en sept 1848. 
-En 1842, il publie un texte de [[Heinrich Hoffmann von Fallersleben]] à Strasbourg, avec lequel il est ami. Il publie aussi des ouvrages interdits. 143 il devient président de la Société allemande de lecture de Londres. 
+Georg Fein est un journaliste et hommes politique allemand, très actif politiquement pendant le *Vormärz*. Il vit à Zurich en 1833 et 1834, puis s'installe à Liestal. En 1835, il crée un club considéré comme l'épicentre de la Jeune Allemagne. 
 
-1844-45 il a des soucis avec les autorités suisses en raison de son engagement pol. Aide de ses amis pour qu'il soit libéré: [[Friedrich Wilhelm Schultz]] et un avocat nommé Adolf Barth + son frère Eduard Fein. Mais il est ramené en autriche et exilé aux etats-unis sur ordre de Metternich. Il continue son engagement pol et maintient des amitiés avec d'autres figures d'opposition comme [[Jacob Venedey]], Karl Schapper, Johann Ernst Arminius von Rauschenplat. 
+En 1836, il est expulsé de Suisse et se réfugie à Paris, où il rejoint le *Bund der Geächteten*. Il publie la revue *Der Geächtete*, qui joue le rôle de manifeste de la ligue. C'est aussi à Paris qu'il se lie d'amitié avec [[Heinrich Heine]]. 
+
+Expulsé de France en 1837, il s'exile à Londres où il fonde un club de lecture socialiste. Il se déplace souvent entre Strasbourg, Oslo et Londres. C'est à Strasbourg qu'il rencontre le révolutionnaire [[Georg Büchner]]. En 1842, il publie un texte de son ami [[Heinrich Hoffmann von Fallersleben]] à Strasbourg églament. Il publie aussi des ouvrages interdits. En parallèle, il devient président de la Société allemande de lecture de Londres. 
+
+Fein revient à Liestal en 1844 et participe à la formation d'associations d'ouvriers allemands, mais les autorités le surveillent en raison de ses activités politiques. Emprisonne, ses amis [[Friedrich Wilhelm Schultz]] et l'avocat Adolf Barth, ainsi que son frère Eduard Fein contribuent à sa libération. Cependant, il est exilé aux Etats-Unis sur ordre de Metternich, après être entré sur le territoire autrichien. 
+
+Malgré son éloignement géographique, il maintient des amitiés avec des figurés d'opposition comme [[Jacob Venedey]], Karl Schapper et Johann Ernst Arminius von Rauschenplat. 
+
+Il retourne en Allemagne en septembre 1848. 
+
+
+
+
+
 
 ---------------------
 	Lent Dieter,  _Findbuch zum Bestand Nachlaß des Demokraten Georg Fein (1803–1869) sowie Familie Fein (1737–) ca. 1772–1924_, Niedersächsische Archivverwaltung, Wolfenbüttel 1991. 

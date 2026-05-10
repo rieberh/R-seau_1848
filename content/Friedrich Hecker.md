@@ -1,2 +1,3 @@
-Juriste de profession, Hecker est le chef de la gauche radicale au pré-parlement de Frankfurt, formé au moment du soulèvement de mars 48. Ballade satirique "Das Guckkasten-Lied vom groβen Hecker", écrite par le juriste d’Heidelberg Karl Gottfried Nadler. C’est une moquerie par rapport à Hecker qui a échoué à monter une rébellion armée en avril 1848. 
-Il rencontre probablement, à Francfort, [[Robert Blum]], [[Friedrich Wilhelm Schultz]], [[Arnold Ruge]] et [[Jacob Venedey]] car ces derniers siègent à gauche au parlement. 
+Juriste de profession, Hecker est le chef de la gauche radicale au pré-parlement de Francfort, formé au moment du soulèvement de mars 1848. Il rencontre probablement, à Francfort, [[Robert Blum]], [[Friedrich Wilhelm Schultz]], [[Arnold Ruge]] et [[Jacob Venedey]] car ces derniers siègent à gauche au parlement. 
+
+En avril, il cherche à réunir une armée pour soulever les états allemands, mais sa tentative échoue, malgré l'aide que lui apporte [[Georg Herwegh]]. 
