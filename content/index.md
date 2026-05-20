@@ -6,6 +6,10 @@ title: Réseau des émigrés allemands en 1848
 
 Bienvenue sur le site dédié au réseau des émigrés allemands, du *Vormärz* aux révolutions de 1848. Vous trouverez ci-dessous les informations nécessaires pour naviguer dans ce réseau.
 
+## Basculer en mode sombre 
+
+Il est possible de basculer en mode sombre, en appuyant sur le soleil au niveau de la barre de recherche du site. La même action permettra de revenir au mode clair. Cette fonctionnalité peut être utilisée en fonction de vos préférences. 
+
 ## Comment accéder aux pages des personnages ?
 
 En arrivant sur le site, il suffit de cliquer sur **"Explorer"** pour obtenir la liste des personnages présentés dans ce réseau. Une page correspond à chacun d'entre eux.
