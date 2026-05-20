@@ -4,7 +4,7 @@ title: Réseau des émigrés allemands en 1848
 
 # Utilisation de ce site
 
-Bienvenue sur le site dédié au réseau d'acteurs de la révolution de 1848. Vous trouverez ci-dessous les informations nécessaires pour naviguer dans ce réseau.
+Bienvenue sur le site dédié au réseau des émigrés allemands, du *Vormärz* aux révolutions de 1848. Vous trouverez ci-dessous les informations nécessaires pour naviguer dans ce réseau.
 
 ## Comment accéder aux pages des personnages ?
 
@@ -35,7 +35,7 @@ Chaque page de personnage contient les informations suivantes :
 
 Pour passer d'un personnage à l'autre, il suffit d'appuyer sur un rétrolien : 
 - Dans la page ouverte. 
-- Dans les "Backlinks. 
+- Dans les "Backlinks". 
 - Sur les noms des personnages à gauche de l'écran.
 - Sur un point dans la vue graphique. 
 Il est aussi possible d'avoir un aperçu de la fiche d'un autre personnage en plaçant la souris sur le lien. 
