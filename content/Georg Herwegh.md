@@ -1,19 +1,13 @@
-Georg Herwegh est un poète révolutionnaire qui vit en exil à Paris. Au début du mois d'avril 1848, il rassemble une force de qq insurgés pour aider [[Friedrich Hecker]] mais ces derniers arrivent trop tard. Il est ami avec l'éditeur exilé à Zurich [[Julius Fröbel]], qui dirige le [[Literarisches Comptoir]]. Il rencontre à Jena [[Robert Blum]].
-Sa femme [[Emma Herwegh]].
-Ami de [[Richard Wagner]]. 
+Poète révolutionnaire socialiste, Georg Herwegh est connu depuis le début des années 1840 pour ses *Gedichte eines Lebendigen*. Il vit en exil en Suisse à partir de 1839. En 1842, il s'y rend pour un voyage littéraire qui lui permet en réalité de se renseigner sur le thème de la révolution et de créer un réseau de relations perdurant jusqu'en 1848. Il y rencontre [[Adolf Ludwig Follen]] et se lie d'amitié avec l'éditeur [[Julius Fröbel-]] exilé à Zurich et à la tête du *Literarisches Comptoir*, asile contre la censure allemande.
 
-Il est connu depuis le début des années 1840 pour ses _Gedichte eines Lebendigen_ (Geoffroy191)
+Il séjourne à Paris pour la première fois en 1841, où il rencontre [[Heinrich Heine]]. Il s'y installe définitivement avec son épouse [[Emma Herwegh]] à partir de 1843. Bien inséré dans le monde littéraire parisien, il traduit des écrivains contemporains comme [[Alphonse de Lamartine]], s'inspire de chansonniers tels que [[Pierre-Jean de Béranger-]] et fréquente le cercle des *Annales franco-allemandes*, éditées par [[Karl Marx-]], ainsi que le salon de [[Marie d'Agoult-]]. C'est aussi à Paris qu'il rencontre [[Richard Wagner-]], avec lequel il devient ami, et qu'il élabore des projets journalistiques avec [[Arnold Ruge]] et [[Mikhaïl Bakounine-]], qui sont ses admirateurs. Il rencontre également Adelbert von Bornstedt.
 
-Socialiste, poète révolutionnaire. Il a vécu en exil en Suisse à partir de 1839 et à Paris à partir de 1843. Il est l'auteur de la chanson "O wag'es doch nur einen Tag", aussi intitulée "Frisch auf, mein Volk, mit Trommelschlag", qui a circulé l'année de la révolution de 1848. Il vient pour la première fois à Paris en 1841 et rencontre [[Heinrich Heine]]. Il traduit des écrivains français contemporains comme [[Alphonse de Lamartine]], dont il se sent très proche (Geoffroy214). Il admire [[Pierre-Jean de Béranger]] et s'inspire de lui (Geoffroy215).
+Herwegh rencontre [[Arnold Ruge]] à Dresde et [[Robert Blum-]] à Iéna. Il passe un moment à Francfort lors du Parlement et y rencontre [[Karl Gutzkow-]], auteur et publiciste ayant publié le manuscrit sur Danton de Georg Büchner.
 
-Il rencontre aussi [[Arnold Ruge]], un journaliste engagé, à Dresden. 
-En 1848, il rassemble une légion démocratique allemande depuis Paris pour le pays de Bade. -> échec en avril, à partir de le Société Démocratique, qu'il a fondée avec d'autres démocrates allemands exilés à Paris comme Adelbert von Bornstedt le 1er mars 1848. Cette expédition était destinée à soutenir l'insurrection républicaine de [[Gustav Struve]] et [[Friedrich Hecker]], à la fin du mois de mars 1848. 
+Le 1er mars 1848, il fonde la Société Démocratique à Paris le 1er mars avec d'autres démocrates allemands exilés à Paris, dont Adelbert von Bornstedt. À la fin du mois de mars et au début du mois d'avril, cette structure soutient l'insurrection révolutionnaire de [[Gustav Struve]] et [[Friedrich Hecker -]]. Herwegh rassemble une légion démocratique allemande composée de quelques insurgés pour aider Friedrich Hecker, mais ces derniers arrivent trop tard. L'expédition échoue. 
 
-Il fréquente à Paris le cercle des *Annales franco-allemandes* éditées par [[Karl Marx]]. 
-Il entretient une correspondance avec [[Mikhaïl Bakounine]]. 
+Herwegh est, par ailleurs, l'auteur de la chanson *"O wag'es doch nur einen Tag"*, aussi intitulée *"Frisch auf, mein Volk, mit Trommelschlag"*, qui circule l'année de la révolution de 1848.
 
-Bong71 En 1842 Herwegh se rend en Suisse pour un voyage littéraire, mais en réalité il se renseigne aussi sur le thème de la révolution. Il se crée un réseau de relations qui perdurent jusqu’à la révolution de 1848. Il est ami avec [[Julius Fröbel]] , éditeur exilé à Zurich et à la tête du _Literarisches Comptoir_, asile contre la censure allemande. Il passe un moment à Francfort lors du Parlement. Il y rencontre [[Karl Gutzkow]], auteur, publiciste, journaliste, qui a publié le manuscrit sur Danton de [[Georg Büchner]] Büchner.  rencontre Robert Blum à Jena. Il rencontre aussi [[Arnold Ruge]] , un journaliste engagé à Dresden.
-
-73Ruge et [[Mikhaïl Bakounine]] sont fans de Herwegh. Ils deviennent amis et élaborent des projets journalistiques. (Bong)
-
-Il rencontre [[Adolf Ludwig Follen]] en Suisse. 
+-------------------
+	Bong Jörg, _Die Flamme der Freiheit: die deutsche Revolution 1848/1849_, Cologne, Kiepenheuer & Witsch, 2022.
+	Rémi Geoffroy, « Entre fascination et répulsion. La France dans la poésie politique du Vormärz (1840 1848) : Hoffmann von Fallersleben, Herwegh, Freiligrath », _Chroniques allemandes_, vol. 5, no 1, Persée - Portail des revues scientifiques en SHS, 1996, p. 189-221.

@@ -1,3 +1,6 @@
-https://www.gottfriedkellerzuerich.ch/karte/ein-emigrantenzentrum-an-der-ramistrasse
-https://www.gottfriedkellerzuerich.ch/lexikon/
-Fréquente la maison de [[Adolf Ludwig Follen]]
+Né en 1819 à Zurich, Gottfried Keller suit en 1833 les cours d'histoire et de géographie de [[Julius Fröbel-]], qui avec qui il reste en lien. Dans les années 1840, il fréquente assidûment la maison d'[[Adolf Ludwig Follen]] à Zurich, lieu de rencontre des libéraux et des émigrés allemands. C'est dans ce cercle qu'il rencontre, en 1844, le poète exilé [[Heinrich Hoffmann von Fallersleben]]. Il y fait aussi la connaissance du journaliste [[Arnold Ruge]].
+
+Grâce à l'introduction de [[Friedrich Wilhelm Schultz]], Keller rencontre les poètes [[Georg Herwegh]] et [[Ferdinand Freiligrath]], avec qui il se lie d'amitié. En 1845, Fröbel publie les premiers poèmes de Keller, _Lieder eines Autodidakten_, au sein de sa maison d'édition, le _Literarisches Comptoir_. Dans les années suivantes, cette même maison édite _Einundzwanzig Liebeslieder_et _Feuer-Idylle_. Lors de la querelle sur l'athéisme qui divise les émigrés allemands à Zurich en 1845-1846, Keller reste fidèle à Follen.
+
+----------------
+	Wysling Hans, _Gottfried Keller: 1819-1890_, Zürich, Artemis, 1990.

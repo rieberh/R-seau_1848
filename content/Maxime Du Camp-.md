@@ -1,0 +1,2 @@
+[[Maxime Du Camp-]] est un écrivain français. Ami de [[Gustave Flaubert -]], avec lequel il correspond, il fait partie de cercles intellectuels parisiens. Ses nombreux voyages inspirent son oeuvre littéraire. À Paris lorsque la révolution de février 1848 éclate, il note ses impressions dans les Souvenirs de l'année 1848 : la révolution de février, le 15 mai, l'insurrection de juin.
+Se bat sur les barricades de juin 48 à Paris. 

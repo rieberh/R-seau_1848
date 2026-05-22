@@ -1,16 +1,8 @@
-Wilhelm Weitling est un exilé politique venu de Magdebourg. Aussi extrême que Georg Büchner, il inspire [[Karl Marx]] et [[Friedrich Engels]] après avoir été politisé lors de la révolution de Juillet 1830. Suite à ce soulèvement, il se rend à Paris, où il rejoint des associations politiques, notamment en 1836 la Bund der Geächteten qui rassemble 500 compagnons et artisans allemands persécutés politiquement. Les statuts de l’association évoquent son objectif : libérer l'Allemagne des princes. Il est probable qu'il ait rencontré, dans le cadre de cette association, [[August Becker]], et [[Jacob Venedey]]. Il devient émissaire de la Ligue en Suisse en 1841. 
-Il fait aussi partie de la Société des Saisons, comme[[Auguste Blanqui]] (2). 
-Une lettre du préfet de police G. Dupin au procureur général, datée du 16 mai 1839 évoque cette association. Elle mentionne l’arrestation de Schapper, décrit comme « l’un des chefs et des meneurs les plus ardents d’une société de démagogues allemands organisée à Paris depuis plusieurs mois ». Cette société aurait pour but de « provoquer à l’insurrection les provinces rhénanes. Le préfet de police identifie Weitling comme un "porteur de proclamations révolutionnaires et d'une traduction en langue allemande de la déclaration des droits de l'homme" (1)
-En 1841, Wilhelm Weitling s'établit en Suisse et occupe la fonction d'émissaire de la ligue des justes. 
-Il est arrête en 1843. Libéré en 1844, il s'établit à Londres. 
+Originaire de Magdebourg, Wilhelm Weitling est un exilé politique radical dont les idées, aussi extrêmes que celles de Georg Büchner, inspirent temporairement [[Karl Marx-]] et [[Friedrich Engels]]. Politisé lors de la révolution de Juillet 1830, il se rend à Paris où il rejoint des associations militantes. En 1836, il intègre la _Bund der Geächteten_, qui rassemble environ 500 compagnons et artisans allemands persécutés avec pour objectif de libérer l'Allemagne de ses princes. Au sein de ce réseau, il rencontre probablement [[August Becker]] et [[Jacob Venedey-]]. Il adhère également à la _Société des Saisons_ aux côtés d'[[Auguste Blanqui]]. Une lettre du préfet de police G. Dupin, datée du 16 mai 1839, le décrit comme un « porteur de proclamations révolutionnaires » et d'une traduction allemande de la _Déclaration des droits de l'homme_, visant à provoquer l'insurrection dans les provinces rhénanes.
 
-1846 lernt Weitling Marx und Engels persönlich kennen mais rupture rapide (Bong57) Weitling geht nach New York, kommt erst
-zum Beginn der Aufstände 1848 zurück nach Europa. Doch spielt er
-1848/49 keine Rolle mehr und kehrt enttäuscht in die USA zurück.
-
-+++ Weitling à Paris Bong 56
+En 1841, Weitling s'établit en Suisse où il occupe la fonction d'émissaire de la _Ligue des justes_. Il est arrêté en 1843 puis libéré en 1844, date à laquelle il s'exile à Londres. Il fait la connaissance personnelle de Marx et Engels en 1846, mais une rupture rapide intervient la même année. Weitling part alors pour New York. Bien qu'il revienne en Europe au début des soulèvements de 1848, il ne joue plus aucun rôle significatif durant cette période et retourne définitivement aux États-Unis, déçu.
 
 --------------------------------------------------------------
 	Bong Jörg, _Die Flamme der Freiheit: die deutsche Revolution 1848/1849_, Cologne, Kiepenheuer & Witsch, 2022.
-	(1) Grandjonc Jacques, « Les émigrés allemands sous la Monarchie de Juillet -Documents de surveillance policière 1833 -Février 1848 », _Cahiers d’Études Germaniques_, vol. 1, no 1, 1972, p. 115-249, p. 142.
-	(2) Mühlestein Hans, « Marx and the Utopian Wilhelm Weitling », _Science & Society_, vol. 12, no 1, Guilford Press, 1948, p. 113-129, p. 115.
+	Grandjonc Jacques, « Les émigrés allemands sous la Monarchie de Juillet -Documents de surveillance policière 1833 -Février 1848 », _Cahiers d’Études Germaniques_, vol. 1, no 1, 1972, p. 115-249, p. 142.
+	Mühlestein Hans, « Marx and the Utopian Wilhelm Weitling », _Science & Society_, vol. 12, no 1, Guilford Press, 1948, p. 113-129, p. 115.

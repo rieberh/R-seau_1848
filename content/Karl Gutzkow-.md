@@ -1,0 +1,9 @@
+Né en 1811 à Berlin, Karl Gutzkow est un auteur, publiciste et journaliste majeur du _Vormärz_. Après des études de théologie et de philosophie à Berlin et un engagement dans les _Burschenschaften_, il publie sa première nouvelle en 1834. Ses textes, tels que le roman _Wally, die Zweiflerin_, publié en1835, défendent les idées libérales émergentes, ce qui lui vaut un emprisonnement durant lequel il rédige _Zur Philosophie der Geschichte_, publié en 1836. Entre 1837 et 1843, il dirige le journal _Der Telegraph für Deutschland_, auquel participe [[August Becker]], malgré l'interdiction du mouvement *Jeune Allemagne* en 1835. Cette publication reste néanmoins dans l'ombre des _Hallischen Jahrbücher_ d'Arnold Ruge.
+
+À partir de 1839, Gutzkow connaît le succès comme auteur dramatique. Sa plus grande réussite est la tragédie _Uriel Acosta_ (1847), œuvre plaidant notamment pour l'émancipation des juifs. De 1847 à 1849, il occupe le poste de dramaturge au _Hoftheater_ de Dresde. Ami du poète [[Georg Herwegh]], il est également connu pour avoir édité le manuscrit _Danton_ de [[Georg Büchner]]. Sa vie personnelle est marquée par des liens avec [[Therese von Bacheracht-]], qui mentionne dans une lettre à Marie d'Agoult l'avoir soigné après une chute sur scène à Dresde, et avec [[Marie d'Agoult-]] elle même, puisqu'ils entretiennent une correspondance en mars 1847. 
+
+Politiquement, Gutzkow adopte une position réservée face à la révolution de 1848. À l'instar des bourgeois libéraux, il s'oppose à la révolution sociale et privilégie la conquête de libertés économiques. 
+
+----------
+	Agoult Marie d’, _Correspondance générale_, Charles François Dupêchez (éd.), Paris, Honoré Champion, coll. « Bibliothèque des correspondances, mémoires et journaux », no 95, 2017, vol. 6.
+	Grimm Gunter E. et Frank Rainer Max (éd.), _Deutsche Dichter_, Stuttgart, Philipp Reclam, coll. « Universal-Bibliothek », no 8615, 1989.

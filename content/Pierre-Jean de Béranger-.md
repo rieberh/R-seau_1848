@@ -1,0 +1,4 @@
+Pierre-Jean de Béranger est un chansonnier français très prolifique jusque dans les années 1830. Il connaît [[Marie d'Agoult-]], dont il fréquente le salon et avec laquelle il entretient des correspondances. Il est également ami avec [[Alphonse de Lamartine]].
+
+--------------------
+	Agoult Marie d’, _Correspondance générale_, Charles François Dupêchez (éd.), Paris, Honoré Champion, coll. « Bibliothèque des correspondances, mémoires et journaux », no 95, 2017, vol. 6.

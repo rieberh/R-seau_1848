@@ -1,1 +1,1 @@
-Révolutionnaire radical démocrate pendant les évènements de 1848. 
+Gustav Struve est un révolutionnaire radical démocrate pendant les évènements de 1848, cousin de [[Therese von Bacheracht-]]. Il organise, avec [[Friedrich Hecker -]], un soulèvement dans le Pays de Bade à la fin du mois du mars, mais celui-ci échoue. Après la révolution de mars 1848, il est membre, comme Hecker, du pré-parlement de Francfort. 
