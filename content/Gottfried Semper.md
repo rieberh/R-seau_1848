@@ -1,1 +1,0 @@
-A la suite de sa participation à l'insurrection de mai 1848 à Dresde, il est contraint de s'exiler à Paris puis à Londres. C'est à ce moment qu'il reçoit une lettre de [[Richard Wagner]], lui proposant un poste de professeur à l'école polytechnique de Zurich. 
