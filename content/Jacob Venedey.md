@@ -1,0 +1,6 @@
+Jacob Venedey arrive à Paris en décembre 1833 après avoir fui l'Allemagne alors qu'il était poursuivi en raison de sa  participation aux fêtes de Hambach en 1832. En 1834, il fonde avec Schuster le _Deutschen Volksverein_ et intègre la _Bund der Geächteten_, où il fréquente [[Georg Fein]], [[August Becker]] et [[Wilhelm Weitling]]. Durant son exil parisien, il travaille comme correspondant pour les journaux _Augsburger Allgemeine Zeitung_ et _Leipziger Allgemeine Zeitung_. Il entretient de bonnes relations avec le poète [[Heinrich Heine]]. 
+
+En 1848, Venedey retourne en Allemagne pour siéger au Parlement de Francfort. Il y côtoie d'autres hommes politiques de gauche, notamment [[Julius Fröbel]], [[Friedrich Hecker]], [[Robert Blum]], [[Arnold Ruge]] et [[Friedrich Wilhelm Schultz]], consolidant ainsi un réseau tissé pendant ses années d'exil.
+
+---------------------
+	Mühlestein Hans, « Marx and the Utopian Wilhelm Weitling », _Science & Society_, vol. 12, no 1, Guilford Press, 1948, p. 113-129.

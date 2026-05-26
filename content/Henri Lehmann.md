@@ -1,0 +1,4 @@
+Peintre allemand naturalisé français en 1847, Henri Lehmann est d'abord élève de Jean-Auguste-Dominique Ingres. La même année que sa naturalisation, il ouvre son propre atelier à Paris, s'insérant ainsi dans le milieu artistique français. Sa présence dans les cercles intellectuels et artistiques de l'époque est attestée par sa correspondance avec [[Marie d'Agoult]]. Il avait, dès 1843, portraituré cette dernière. Lehmann avait probablement rencontré Marie d'Agoult et [[Franz Liszt]] à Rome en 1839. Plus tard, dans une correspondance datée du 1er octobre 1848, Marie d'Agoult indique avoir reçu des nouvelles du peintre par l'intermédiaire de [[Therese von Bacheracht]] et de l'écrivaine [[Fanny Lewald]], témoignant de ses liens avec ces figures intellectuelles allemandes. 
+
+-----------
+	Agoult Marie d’, Franz Liszt et Henri Lehmann, _Une correspondance romantique : Madame d’Agoult, Liszt, Henri Lehmann_, Solange Joubert (éd.), Paris, France, Flammarion, 1947.

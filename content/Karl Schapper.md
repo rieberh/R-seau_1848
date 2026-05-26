@@ -1,0 +1,5 @@
+Militant révolutionnaire allemand, Karl Schapper est l'une des figures fondatrices du _Bund der Gerechten_, organisation qui naît d'une scission au sein du _Bund der Geächteten_ durant l'hiver 1836-1837. Ce clivage résulte d'un conflit interne sur la structure de l'association : Schapper, aux côtés de Georg Weißenbach, s'oppose à l'instauration d'un système pyramidal autoritaire inspiré de la Charbonnerie et défend une organisation plus démocratique. À la tête de cette nouvelle ligue, il continue de diffuser des idées politiques subversives parmi les exilés. Son parcours révolutionnaire le conduit à croiser les routes de [[Karl Marx]] et de [[Friedrich Engels]], avec qui il communique lors de la transformation de la Ligue des Justes en Ligue des Communistes.
+
+
+_____________________
+	Marx Karl et Friedrich Engels, _Manifeste du parti communiste_, Jules Molitor (trad.), Paris, A. Costes, 1934 (édition originale : 1848).

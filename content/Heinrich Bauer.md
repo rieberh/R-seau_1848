@@ -1,0 +1,6 @@
+Cordonnier exerçant au 19 rue du Four à Paris, Heinrich Bauer est un membre actif de la Ligue des justes, comme [[Karl Schapper]], [[Wilhelm Weitling]] et [[August Becker]]. Son domicile parisien sert de relais pour la diffusion de publications révolutionnaires, notamment pour l'abonnement au périodique _Der Hülferuf der deutschen Jugend_, édité par [[Wilhelm Weitling]] et rédigé par des ouvriers allemands. 
+
+Bauer est poursuivi par les autorités, en raison de ses activités liées à la propagande révolutionnaire des émigrés allemands. Selon une lettre du préfet de l'Ain citée par l'historien Jacques Grandjonc, il est arrêté à Paris à la fin du mois de décembre 1841. Les sources ne sont cependant pas très loquaces au sujet de cet individu, rendant difficile l'évaluation de son rôle dans les évènements révolutionnaires de 1848. 
+
+-------------------------
+    Grandjonc Jacques, « Les émigrés allemands sous la Monarchie de Juillet -Documents de surveillance policière 1833 -Février 1848 », Cahiers d’Études Germaniques, vol. 1, nᵒ 1, 1972, p. 115-249.

@@ -1,1 +1,0 @@
-  éditeur de [[Heinrich Heine]] et [[Karl Gutzkow-]], de [[Heinrich Hoffmann von Fallersleben]]. Plus généralement, auteurs du mouvement de la Jeune Allemagne

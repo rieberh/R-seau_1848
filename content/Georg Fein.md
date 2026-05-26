@@ -6,7 +6,7 @@ Expulsé de France en 1837, il s'exile à Londres où il fonde un club de lectur
 
 Fein revient à Liestal en 1844 et participe à la formation d'associations d'ouvriers allemands, mais les autorités le surveillent en raison de ses activités politiques. Emprisonne, ses amis [[Friedrich Wilhelm Schultz]] et l'avocat Adolf Barth, ainsi que son frère Eduard Fein contribuent à sa libération. Cependant, il est exilé aux Etats-Unis sur ordre de Metternich, après être entré sur le territoire autrichien. 
 
-Malgré son éloignement géographique, il maintient des amitiés avec des figurés d'opposition comme [[Jacob Venedey-]], Karl Schapper et Johann Ernst Arminius von Rauschenplat. 
+Malgré son éloignement géographique, il maintient des amitiés avec des figurés d'opposition comme [[Jacob Venedey]], Karl Schapper et Johann Ernst Arminius von Rauschenplat. 
 
 Il retourne en Allemagne en septembre 1848. 
 

@@ -1,1 +1,0 @@
-Socialiste. Sa résidence de Düsseldorf au 53 _Friedrichstrasse_ devient un lieu de rencontre important des militants pendant la révolution de mars 1848. S'y trouvent notamment [[Karl Marx-]] et [[Ferdinand Freiligrath]]. Sa procédure de divorce en cours est perçue comme un combat contre l'ancien système féodal. 
