@@ -4,5 +4,5 @@ En juin 1848, il participe à l'insurrection survenue en réaction à la dissolu
 
 ----------
 	Du Camp Maxime, _Souvenirs de l’année 1848 : la révolution de février, le 15 mai, l’insurrection de juin_, Paris, Hachette et Cie, 1876.
-	Du Camp Maxime, *Les moeurs de mon temps, règne de Louis-Philippe, règne de Napoléon III (1830-1870)*.
+	Du Camp Maxime, _Les moeurs de mon temps, règne de Louis-Philippe, règne de Napoléon III (1830-1870)_.
 	« Édition électronique de la correspondance de Flaubert », sans date (en ligne : [https://flaubert.univ-rouen.fr/correspondance/correspondance/](https://flaubert.univ-rouen.fr/correspondance/correspondance/) ; consulté le 22 mai 2026).

@@ -1,4 +1,4 @@
-Envoyé en Thuringe dans les années 1840, Stolzte fait la rencontre de [[Julius Fröbel]]. Rentré à Francfort, il suit avec attention les évènements de 1848 et le soutient par sa plume. Il écrit notamment le poème *Dem Volke sei der Sieg gebracht*, *Deutsche Hymne* et *Auf, Vaterland, voran!*.
+Envoyé en Thuringe dans les années 1840, Stolzte fait la rencontre de [[Julius Fröbel]]. Rentré à Francfort, il suit avec attention les évènements de 1848 et le soutient par sa plume. Il écrit notamment le poème _Dem Volke sei der Sieg gebracht_, _Deutsche Hymne_ et _Auf, Vaterland, voran!_.
 
 En 1848, il participe aux évènements révolutionnaires et prend part au Parlement de Francfort. Il y rencontre probablement des personnalités comme [[Arnold Ruge]], [[Jacob Venedey]] ou [[Friedrich Hecker]].
 

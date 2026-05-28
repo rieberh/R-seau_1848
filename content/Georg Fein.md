@@ -1,6 +1,6 @@
-Georg Fein est un journaliste et hommes politique allemand, très actif politiquement pendant le *Vormärz*. Il vit à Zurich en 1833 et 1834, puis s'installe à Liestal. En 1835, il crée un club considéré comme l'épicentre de la Jeune Allemagne. 
+Georg Fein est un journaliste et hommes politique allemand, très actif politiquement pendant le _Vormärz_. Il vit à Zurich en 1833 et 1834, puis s'installe à Liestal. En 1835, il crée un club considéré comme l'épicentre de la Jeune Allemagne. 
 
-En 1836, il est expulsé de Suisse et se réfugie à Paris, où il rejoint le *Bund der Geächteten*. Il publie la revue *Der Geächtete*, qui joue le rôle de manifeste de la ligue. C'est aussi à Paris qu'il se lie d'amitié avec [[Heinrich Heine]]. 
+En 1836, il est expulsé de Suisse et se réfugie à Paris, où il rejoint le _Bund der Geächteten_. Il publie la revue _Der Geächtete_, qui joue le rôle de manifeste de la ligue. C'est aussi à Paris qu'il se lie d'amitié avec [[Heinrich Heine]]. 
 
 Expulsé de France en 1837, il s'exile à Londres où il fonde un club de lecture socialiste. Il se déplace souvent entre Strasbourg, Oslo et Londres. C'est à Strasbourg qu'il rencontre le révolutionnaire [[Georg Büchner]]. En 1842, il publie un texte de son ami [[Heinrich Hoffmann von Fallersleben]] à Strasbourg églament. Il publie aussi des ouvrages interdits. En parallèle, il devient président de la Société allemande de lecture de Londres. 
 
